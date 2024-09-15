@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Muhammad Ghaza Azhar L, [Linkedin](www.linkedin.com/in/muhammad-ghaza-azhar-lesmana-349a5a311).
